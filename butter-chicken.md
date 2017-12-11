@@ -88,3 +88,6 @@ Grill the chicken on 450 till juices run clear.
 14. Add 1 tsp of garam masala powder.
 13. Add 1 - 2 sticks of butter depending on how rich you like your gravy.
 14. Cook low for 5 more minutes.
+
+## EZ MODE
+the ez mode version is like - buy rotisserie chicken, deskin, shred the meat, make the gravy and and shredded chicken right before you add the whipping cream and butter. And use tomato puree 32 oz can instead of making the puree from scratch
