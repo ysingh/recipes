@@ -36,6 +36,7 @@ Butter Chicken is a combination of two indian dishes.
 #### Ginger Paste (2 inches of ginger)
 1. See above
 
+
 1. Drain first marinade.
 2. Combine all ingredients into the yogurt, making sure to mix well so the spices and ginger garlic paste are distributed evenly.
 3. Cover the chicken with yogurt making sure all of the pieces are thoroughly covered.
